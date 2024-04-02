@@ -1,1 +1,1 @@
-Leaving at @devfaran. Discord @devfaran.
+IT Enthusiast
